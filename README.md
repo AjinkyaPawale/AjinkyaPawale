@@ -1,0 +1,1 @@
+Data Science enthusiast and actively looking for opportunities in the same. Skilled in Data Science, Data Analytics, Machine Learning and Data Visualization. Strong education professional with an Engineering focused in Computer Science from Mumbai University. Currently pursuing Master's degree in Data Science from Indiana University Bloomington.
